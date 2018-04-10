@@ -1,2 +1,0 @@
-# prosperosbooks.github.io
-#
